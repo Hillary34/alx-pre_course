@@ -1,1 +1,1 @@
-Thank God for life
+Please god
